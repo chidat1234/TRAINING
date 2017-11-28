@@ -10,4 +10,5 @@
 So maybe I update late! sorry for about that! i will update the correct date! 
 **23/11/2017** update 
 **25/11/2017** update 
-**26/11/2017** I will try to finish all rest of part in my lesson training tomorrow!
+**26/11/2017** I will try to finish soon ! 
+**27/11** update 
