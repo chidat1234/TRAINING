@@ -14,3 +14,5 @@ So maybe I update late! sorry for about that! i will update the correct date!
 **27/11** update 
 **27/11** i have a last one ! recently i have a problems with my laptop , it isn’t working ! please accept my apology for the inconvenience .
 **28/22** It’s quite complete , just have a some error ! i will try to fix it and finish ! 
+** almost completed ! 
+done now ! 
